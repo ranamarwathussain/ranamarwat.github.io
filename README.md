@@ -1,2 +1,2 @@
 # ranamarwat.github.io
-My digital Profile 
+My digital resume
